@@ -17,6 +17,7 @@ Let's make this a fun and productive learning experience! 🌈
 - Michael Varnell
 - Lavenia Stewart
 - Jamal Davis
+- Mariam Trubitsyn
 -
 -
 -
