@@ -15,7 +15,7 @@ Let's make this a fun and productive learning experience! 🌈
 
 ## Add your name to this list: ✍️
 - Michael Varnell
--
+- Lavenia Stewart
 -
 -
 -
